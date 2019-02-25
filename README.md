@@ -1,0 +1,1 @@
+# adaptivnost.html
